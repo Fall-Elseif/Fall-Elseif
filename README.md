@@ -7,3 +7,5 @@ Discord is @bitternight if you gaf, just talk to me about it dude
 if you think im weird and shit, the block button is right there!!!! ^_^
 
 i hardly even talk to strangers, so idk who you are??? if youre that person who accused me of saying the r, n and f word to someone even tho it was not real, then just piss off 🐺🐺👿👿👿
+
+also umm, thanks for using the wrong pronouns on me??? lol
