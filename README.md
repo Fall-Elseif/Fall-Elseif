@@ -9,3 +9,5 @@ if you think im weird and shit, the block button is right there!!!! ^_^
 i hardly even talk to strangers, so idk who you are??? if youre that person who accused me of saying the r, n and f word to someone even tho it was not real, then just piss off 🐺🐺👿👿👿
 
 also umm, thanks for using the wrong pronouns on me??? lol
+
+if you actually have a complaint about me, please just dm me about it ^_^ itll help resolve faster other than this
