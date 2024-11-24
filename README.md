@@ -4,4 +4,6 @@ and the way you talked to her about ur message not being seen is just you being 
 
 Discord is @bitternight if you gaf, just talk to me about it dude
 
-"theyre so fucking weird" thats how i am.... looks aroundd
+if you think im weird and shit, the block button is right there!!!! ^_^
+
+i hardly even talk to strangers, so idk who you are??? if youre that person who accused me of saying the r, n and f word to someone even tho it was not real, then just piss off 🐺🐺👿👿👿
