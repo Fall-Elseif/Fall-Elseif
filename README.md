@@ -3,3 +3,5 @@ Hi if youre the person who sent a complaint to my wifes atabook please leave her
 and the way you talked to her about ur message not being seen is just you being impatient.... and genuinely mean towards her... "/nbr", not being rude my ass 🙏
 
 Discord is @bitternight if you gaf, just talk to me about it dude
+
+"theyre so fucking weird" thats how i am.... looks aroundd
